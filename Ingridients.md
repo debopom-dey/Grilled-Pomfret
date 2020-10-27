@@ -1,0 +1,10 @@
+Salt- a pinch (the lesser the safer,approx 1gm)
+White pomfret (approx 150gm)
+ tumeric powder (5 gm)
+oil (heart healthy oil is preffered for cardiac patients,5gm)
+green beans(30 gm)
+winter root veggies(50 gm)
+tomato ripe(30 gm)
+garlic(5 gm)
+
+(heart healthy proportions,customize to your taste)
